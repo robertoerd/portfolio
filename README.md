@@ -1,4 +1,4 @@
-# Portfolio
+# Portfolio 💻
 
 Welcome to whoever is reading this. I hope you are having a great day. 👋🏽
 
